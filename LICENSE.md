@@ -1,4 +1,4 @@
-# 
+# Actualizado Adobe Illustrator plugins para Mac OS | Profesional Adobe Illustrator plugins para PC Windows. Con sistema de cabello y desenvolvimiento UV — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
